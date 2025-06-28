@@ -28,6 +28,6 @@
 ### Connect With Me
 - **Email**: mpanwarbaba@gmail.com  
 - **GitHub**: [github.com/anwarmpab](https://github.com/anwarmpab)  
-- *(Add your LinkedIn if available)*
+- *https://www.linkedin.com/in/anwar-baba-m-p-47259630a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app*
 
 > *“I’m not building projects — I’m building the future.”*
